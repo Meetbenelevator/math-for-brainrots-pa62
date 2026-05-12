@@ -1,4 +1,4 @@
-#  
+#  forsaken Scripts secure offers the most advanced forsaken Script, with auto-collect and no cooldown. Perfect for dominating any match.
 
 
 
